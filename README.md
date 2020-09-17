@@ -20,3 +20,5 @@ All you have to do is watch my new video and then [CLICK HERE](https://store.reb
 
 Let’s get to work!
 -- Alex
+
+https://www.youtube.com/watch?v=1pK1yZlzeTw&list=PL_csAAO9PQ8Z1pbr-u6dSmDQTLZzDgcaP&index=2
